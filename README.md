@@ -1,1 +1,1 @@
-# rswarn2cs199gamproj1.github.io
+# rishabhswarnkar.github.io/rswarn2cs199gamproj1
